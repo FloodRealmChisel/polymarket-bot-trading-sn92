@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Polymarket addon with new Polymarket Addon | scalping-strategies + multi-exchange-support. Featuring scalping-strategies and multi-exchange-support, it's the best
 
 
 
